@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sounobbao
+- 👀 I’m interested in Coouputer
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on nothing at least for now
+- 📫 How to reach me there isn't any way
